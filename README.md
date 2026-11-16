@@ -8,5 +8,5 @@
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... @Azgmolema0@gmail.com
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... Um 17!
+- ⚡ Fun fact: ... Im 17 years old and i live in the Netherlands.
 
